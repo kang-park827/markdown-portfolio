@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+*Incentives* and sources of *motivation* are important, but my end goal is to develop **_discipline_**. 
